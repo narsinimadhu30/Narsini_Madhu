@@ -4,7 +4,7 @@
 
 ## 🌐 Socials:
 📧 Email: madhunarsini@gmail.com  
-💼 LinkedIn: www.linkedin.com/in/koneru-venkata-siddartha-66698a27b 
+💼 LinkedIn : 
 🐙 GitHub: https://github.com/narsinimadhu30
 
 
